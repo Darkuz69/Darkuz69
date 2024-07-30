@@ -7,6 +7,6 @@ You can reach me with these several accounts:
 - Google -> [TheReal-MichaelJohnLarido](lakatangaming145@gmail.com)
 - Google -> [TheFake-MichaelJohnLarido](laridomichaeljohn69@gmail.com)
 - Facebook -> [Michael John Larido](www.facebook.com/iam.larido69/)
-- Instagram -> [mikeru_96](www.instagram.com/mikeru_96/?hl=en)
-- TikTok -> [sinclair_197](www.tiktok.com/@sinclair_197)
+- Instagram -> [mikeru_96](https://www.instagram.com/mikeru_96/?hl=en)
+- TikTok -> [sinclair_197](https://www.tiktok.com/@sinclair_197)
 - MLBB -> Mikeru(ID: 539101712)
