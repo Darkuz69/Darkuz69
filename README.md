@@ -1,5 +1,5 @@
 # 🌟Hello!! This is Darkuz69's repo!!
-This is my repository where I upload some of my local projects. I started posting projects at pastebin, and now I'm here in github!!
+This is my repository where I upload some of my random projects. I started posting projects at pastebin, and now I'm here in github!!
 # ⁉️ Who TF am I??
 Hi! My real name is Michael John Larido. I'm currently a college student (2nd Year), taking the Bachelor of Science in Information Technology. I've started my programming journey at 2022, and continuing till this day. This repo will be my place to share my projects to the world. I hope that whoever finds this repo learn something from my projects...
 # 📨 Social Media
